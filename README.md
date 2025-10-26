@@ -1,0 +1,1 @@
+# Simulador-de-Algoritmos-de-Substitui-o-de-P-ginas
